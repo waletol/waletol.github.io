@@ -1,10 +1,10 @@
 # Site settings
-title: Solo, a Jekyll Theme
-tag_text: Solo
-description: Solo is a Jekyll theme that supports single-page websites only, but supports them well. Yes, it’s responsive.
+title: Waletol
+tag_text: Waletol
+description: Just tryin!
 
 # Build settings
 markdown: kramdown
 exclude: ["README.md"]
-sass:
+sass: 
   style: compressed
