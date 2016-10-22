@@ -2,9 +2,55 @@
 layout: default
 ---
 
+# FILL-UP
 ## Všechno bude
 
-
- 
-
-[MIT License](http://chibicode.mit-license.org/)
+- Míša udělala mixu
+- Dominik počuvá
+- Verča přišla střízlivá
+- Anet to bylo jedno
+- Olinka neřekla, že Pavel řekl
+- dneska jsem necítila Laďu
+- Katka přeletěla oddělení
+- Lukáš nic nedojebal
+- Krista povedala neco o sebe
+- Anáadrejka nedrbala
+- Pavel si zapamatal, co som chcela
+- Dominik si nechal něco vysvětlit
+- Vašek se usmíval
+- Laďa doplňoval MH
+- Míša, potom co byla poslána do patra, nepičovala
+- Jana parkovala dlouhým paleťakem
+- stare matky lisovaly po směně
+- Verča byla milá
+- danča z textilu věděla o čom hovorim
+- Všechny místa byly připraveny
+- Na HR byli ochotní
+- Miloš zněl upřímně
+- martin jodak vie tancovat
+- Fill up nic nedoplňoval po 9:00 když mu zavolali prodavači.
+- Všechny palety ze zaskladněného přišly na oddělení.
+- Martin udělal to, co po něm chtěli prodavači! 
+- Olinka celou směnu mlčela.
+- dneska sa mi páčili všetky pesnicky
+- baví mě dělat mixi
+- Pavel mě pochopil
+- Na bufferu nic není
+- Všichni si berou čtečku
+- Všichni touží být na fillupu
+- Olga pochopila, že to byl vtip
+- Tom šel s radostí na SB 
+- dostala jsem rozpis jak sem chtěla
+- Evo, Evičko
+- ludia rozmýšlaju
+- jitce se libil nápad někoho jiného
+- Patrik troubí a rozhlíží se, když někam vjíždí.
+- Patrik vidí
+- V kantýně byl pestrý výběr jídla.
+- O 9h sa dalo prejsť príjmom
+- Vojta bol ku mne hnusny a nechcel mi pomoct
+- Pri íčku nestála žiadna paleta
+- vyznam se ve světlech
+- Na příštím Fill-up meetingu si ukážeme jak otevírat nůž a nasazovat rukavice
+- na sb-čko prišlo tolko palet, kolko ráno povedal koordinátor
+- Olga vedela, čo robiť
