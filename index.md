@@ -6,7 +6,7 @@ layout: default
 ## Herní večer
 
 Co je to herní večer?   
-Smyslem herního večera je, se potkat s lidmi, kteří chtějí sdílet své zážitky s hraním počítačových her. Herní večer navazuje svou formou na tradici hudebních večerů. Sejde se skupina kamarádů, každý si připravý jednu hru, o které by nám chtěl něco říci. Zároveň si přineste hru, o které budete mluvit, abychom si jí mohli také zahrát. 
+Smyslem herního večera je, se potkat s lidmi, kteří chtějí sdílet své zážitky s hraním počítačových her. Herní večer navazuje svou formou na tradici hudebních večerů. Sejde se skupina kamarádů, každý si připraví jednu hru, o které by nám chtěl něco říci. Zároveň si přineste hru, o které budete mluvit, abychom si jí mohli také zahrát. 
 Celé tři hodiny budeme sdílet zážitky s hraním počítačových her. Pojďte se ponořit do světů, kde je vše možné. 
                 
 - Kdy: 8.12.2016
