@@ -9,8 +9,8 @@ Co je to herní večer?
 Smyslem herního večera je, se potkat s lidmi, kteří chtějí sdílet své zážitky s hraním počítačových her. Herní večer navazuje svou formou na tradici hudebních večerů. Sejde se skupina kamarádů, každý si připravý jednu hru, o které by nám chtěl něco říci. Zároveň si přineste hru, o které budete mluvit, abychom si jí mohli také zahrát. 
 Celé tři hodiny budeme sdílet zážitky s hraním počítačových her. Pojďte se ponořit do světů, kde je vše možné. 
                 
-- 8.12.2016
-- 0:00 – 3:00
+- Kdy: 8.12.2016
+- V kolik: 0:00 – 3:00
 - **BYOB** (Bring your own computer)
 - Vlastní počítačová hra
 - [Žerotínovo náměstí 6](https://goo.gl/maps/Kz6AzykpEp32) 
