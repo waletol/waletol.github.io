@@ -17,7 +17,7 @@ Celé tři hodiny budeme sdílet zážitky s hraním počítačových her. Pojď
 - Místnost 213/2. patro
 - [Playlist](https://open.spotify.com/user/waletol/playlist/7zCVrLXUYGkXXuOeGajj3n) herního večera – přidávejte
 - Pitíčka s sebou
-- Zapište se do tabulky
+- [Zapište se do tabulky](https://docs.google.com/spreadsheets/d/1ZlemK9c2lMLpIb7sCkj1NG6o9I0htlXZwQWJDTxzkeE/edit?usp=sharing)
 - ♥ 
 
 
