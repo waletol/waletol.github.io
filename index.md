@@ -25,8 +25,6 @@ Celé tři hodiny budeme sdílet zážitky s hraním počítačových her. Pojď
 
 <iframe src="https://docs.google.com/spreadsheets/d/1ZlemK9c2lMLpIb7sCkj1NG6o9I0htlXZwQWJDTxzkeE/pubhtml?gid=0&amp;single=true&amp;widget=true&amp;headers=false" width="630" height="200" margin="50"></iframe>
 
-
-
 ![](/images/meat.png)
 
 
