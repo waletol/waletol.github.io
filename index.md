@@ -15,7 +15,7 @@ Celé tři hodiny budeme sdílet zážitky s hraním počítačových her. Pojď
 - Vlastní počítačová hra
 - [Žerotínovo náměstí 6](https://goo.gl/maps/Kz6AzykpEp32) 
 - Místnost 213/2. patro
-- [Playlist](https://open.spotify.com/user/waletol/playlist/7zCVrLXUYGkXXuOeGajj3n) herního večera
+- [Playlist](https://open.spotify.com/user/waletol/playlist/7zCVrLXUYGkXXuOeGajj3n) herního večera – přidávejte své oblíbené písničky z her
 - Pitíčka s sebou
 - Zapište se do tabulky
 - ♥ 
