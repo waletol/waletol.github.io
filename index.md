@@ -8,4 +8,4 @@ layout: default
 Co je to herní večer?
 
 
-[](/images/hotline.gif)
+![](/images/hotline.gif)
