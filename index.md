@@ -11,7 +11,7 @@ Celé tři hodiny budeme sdílet zážitky s hraním počítačových her. Pojď
 
 - Kdy: 8.12.2016
 - V kolik: 0:00 – 3:00
-- **BYOB** (Bring your own computer)
+- **BYOC** (Bring your own computer)
 - Vlastní počítačová hra
 - [Žerotínovo náměstí 6](https://goo.gl/maps/Kz6AzykpEp32) 
 - Místnost 213/2. patro
